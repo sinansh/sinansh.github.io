@@ -10,4 +10,4 @@ Twitter: @wsinansh
 
 LinkedIn: /in/sinansh
 
-E-Mail: snansahin1<at>gmail<dot>com
+E-Mail: snansahin1 @ gmail . com
