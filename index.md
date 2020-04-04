@@ -8,4 +8,4 @@ Twitter: @wsinansh
 
 LinkedIn: /in/sinansh
 
-E-Mail: snansahin1 @ gmail . com
+E-Mail: wsinansh @ gmail . com
