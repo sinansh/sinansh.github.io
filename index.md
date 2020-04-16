@@ -4,7 +4,7 @@ Sinan Şahin
 
 ### Contact:
 
-Twitter: @wsinansh
+Twitter: @_sinansh
 
 E-Mail: wsinansh @ gmail . com
 
