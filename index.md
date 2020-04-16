@@ -1,10 +1,5 @@
-## Welcome to My Personal Web Page
-
-Sinan Şahin 
 
 ### Contact:
-
-Twitter: @_sinansh
 
 E-Mail: wsinansh @ gmail . com
 
