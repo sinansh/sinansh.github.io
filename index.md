@@ -1,7 +1,4 @@
 
-### Contact:
-
-E-Mail: wsinansh @ gmail . com
 
 ### LinkedIn
 
